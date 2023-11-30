@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @BinhYen123
 - 👀 I’m interested in Tây Ninh 
-- 🌱 hùmmm
-- ❤ N
-- 📫 tương tư ai đó
+- 🌱 tôi nhớ em
+- ❤ T L P N
+- 📫 liệu có cơ hội
 
 <!---
 BinhYen123/BinhYen123 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
