@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @BinhYen123
-- 👀 I’m interested in Tây Ninh 
-- 🌱 tôi nhớ em
+- 👀  Nụ cười em là nắng1
+- 🌱 I miss you 
 - ❤ T L P N
 - 📫 liệu có cơ hội
 
